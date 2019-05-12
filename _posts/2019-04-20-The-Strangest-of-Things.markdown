@@ -3,7 +3,7 @@ layout: post
 title:  The Strangest of Things
 date:   2019-04-20 21:00
 ---
-The strangest of things  
+
 The other day I am walking to   
 breakfast with Teddy it’s a nice day   
 and we cross the street   

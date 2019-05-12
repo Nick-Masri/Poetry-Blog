@@ -3,7 +3,7 @@ layout: post
 title:  Bittersweet Lick
 date:   2019-04-05 21:25
 ---
-Bittersweet Lick  
+
 To my sur-prise,  
 the blackbird is  
 already spent  
