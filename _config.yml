@@ -1,5 +1,5 @@
 # Site settings
-title: Nicholas Masri Poetry
+title: Nicholas Masri
 description: >
   This is a personal blog site for me to upload my poetry.
 
@@ -7,7 +7,7 @@ baseurl: "" # the subpath of your site, e.g. /blog/
 url: "https://poetry.nickmasri.com/" # the base hostname & protocol for your site
 
 author:
-  fullname: Nicholas Masro
+  fullname: Nicholas Masri
   github: nick-masri
   # disqus: your_disqus_forum_shortname
 
