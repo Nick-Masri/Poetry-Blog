@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  That's That
-date:   2018-05-11 21:20
+date:   2019-05-01 21:20
 ---
 
 So sure you were when  
@@ -20,4 +20,4 @@ you think maybe they
 were right but don't think  
 you think to yourself, just  
 go out there and run  
-barefoot. 
+barefoot.
