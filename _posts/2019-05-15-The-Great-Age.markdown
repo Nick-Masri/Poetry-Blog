@@ -17,6 +17,7 @@ The very best we can be
 And leading the party  
 Are the Great Americans  
 With a very rambunctious Alabaman  
+All proud that he just outlawed abortion  
 He used to be an alcoholic  
 But he says he's all better  
 Because he's in the Great New Age  
