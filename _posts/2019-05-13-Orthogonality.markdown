@@ -28,4 +28,4 @@ where was orthogonality
 when we pay 80,000  
 for someone to stay in  
 jail and we say education  
-is to expensive  
+is too expensive  
