@@ -17,7 +17,8 @@ and we brought it to
 the dumpster near my dorm  
 and you made fun of  
 environmentalists  
-and called me a hopeless enthusiast  
+and called me a
+hopeless enthusiast  
 and we poured the plastic  
 balls into the dumpster  
 and heard something move  
@@ -26,7 +27,8 @@ that had fell
 and threw them in  
 and we deflated the kid pool  
 or did we-I can't remember  
-and you said you saw something  
+and you said you saw
+something  
 near the dumpster  
 you saw legs  
 man legs-racoon legs  
@@ -35,14 +37,18 @@ by the plastic balls
 but I didn't see it  
 I was too distracted  
 looking at someone I wished  
-I had more time with and I wished
-I didn't have sign-in and I could stay up  
+I had more time with  
+and I wished  
+I didn't have sign-in   
+and I could stay up  
 till 3am on a Wednesday morning  
-with you  
 looking at the stars  
+with you  
+
 and when I woke up  
 my two weeks were gone  
-I was neither hopeless nor enthusiastic  
+I was neither hopeless  
+nor enthusiastic   
 and all I had to remember you  
 were more CVS points on my account  
 and a Simon and Garfunkel song  
