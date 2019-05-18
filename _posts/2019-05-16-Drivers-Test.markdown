@@ -4,7 +4,7 @@ title:  Drivers Test
 date:   2019-05-16 17:00
 ---
 
-It's the day i've waited  
+It's the day I've waited  
 for & studied for  
 
 I do the form in my  
@@ -29,23 +29,19 @@ he tells me that I don't
 have to be like him  
 & says drive now  
 
-KEEP ON DRIVING DON'T  
-STOP ILL TELL YOU WHERE  
-TO GO-WELL LIVE SOMEPLACE  
-NEW-WE CAN SPLIT  
-WAYS ONCE WE GET TO  
-THE PROMISE LAND BUT  
-KID GO & DONT STOP  
+Keep on driving don't  
+stop ill tell you where  
+to go-we'll live someplace  
+new-we can split  
+ways once we get their  
+but kid GO & DONT STOP  
 DRIVING NOW YOU  
 JUST GOTTA GO  
 & DRIVE & NEVER  
-STOP FOR A BIT  
-YOU GOTTA DRIVE  
-NOW GO DONT STOP  
-JUST DRIVE  
+STOP  
 and don't ever stop  
 they are gonna come  
--i know your dad  
+-I know your dad  
 by looks-he looks  
 like a real hardass  
 the type to secretly  
@@ -75,7 +71,7 @@ just sit in a chair
 & they condition  
 us from young  
 age you know  
-that's it's true-they  
+that it's true-they  
 brainwash us &  
 tell us these lies  
 on tv & movies &  
