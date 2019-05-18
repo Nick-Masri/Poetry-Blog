@@ -17,7 +17,7 @@ and we brought it to
 the dumpster near my dorm  
 and you made fun of  
 environmentalists  
-and called me a
+and called me a  
 hopeless enthusiast  
 and we poured the plastic  
 balls into the dumpster  
@@ -27,7 +27,7 @@ that had fell
 and threw them in  
 and we deflated the kid pool  
 or did we-I can't remember  
-and you said you saw
+and you said you saw  
 something  
 near the dumpster  
 you saw legs  
