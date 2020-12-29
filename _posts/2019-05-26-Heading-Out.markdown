@@ -15,5 +15,5 @@ Someplace for you in my heart
 And who knows  
 Maybe while I'm on the road  
 I'll find someone new  
-Or maybe I'll find you  
+Or maybe I'll think of you  
 And be strangled by blue  
